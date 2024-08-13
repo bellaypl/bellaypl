@@ -7,6 +7,7 @@ Meu nome é: Isabelly Pereira
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 - ### Você pode contar comigo!
-- 00001135727752sp@al.educacao.sp.gov.br
+  
+ 00001135727752sp@al.educacao.sp.gov.br
 
-  ![](https://tenor.com/bSxjs.gif) 
+![](https://media1.tenor.com/m/ofN_qPVsp2UAAAAd/gjirlfriend-gifs.gif)
