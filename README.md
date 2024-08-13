@@ -1,4 +1,4 @@
-### Boas vindas ao  meu perfil💌
+### Boas vindas ao  meu perfil!💌
 
 Meu nome é: Isabelly Pereira
 
@@ -9,4 +9,4 @@ Meu nome é: Isabelly Pereira
 - ### Você pode contar comigo!
 - 00001135727752sp@al.educacao.sp.gov.br
 
-  ![](https://tenor.com/l9UenwNYb72.gif)
+  ![](https://tenor.com/bSxjs.gif) 
